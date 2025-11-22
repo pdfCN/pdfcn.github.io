@@ -1,1 +1,1 @@
-- Software Systems and Cybersecurity (SSC) Graduate Research Student Award(Monash), 2025 
+- Graduate Research Student Award (Minor Thesis) · Software Systems and Cybersecurity (SSC), Monash University · 2025
